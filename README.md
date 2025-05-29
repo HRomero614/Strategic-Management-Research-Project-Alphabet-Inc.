@@ -1,0 +1,1 @@
+# Strategic-Management-Research-Project-Alphabet-Inc.
